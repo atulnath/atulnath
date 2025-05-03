@@ -43,5 +43,5 @@ I'm an aspiring automotive software engineer with hands-on experience in buildin
 
 ## 📫 Let's Connect
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/atul-nath-94229a110/)
+- 💼 [LinkedIn](https://www.linkedin.com/in/atul-chandra-nath/)
 - 📧 enggatulbd@gmail.com
